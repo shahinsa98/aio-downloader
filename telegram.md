@@ -7,6 +7,1064 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/29 01:35
+---
+
+## VahidOOnLine — post 240871
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240871_1779141917.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در یک سخنرانی گفت اگر بتواند به توافقی با جمهوری اسلامی دست یابد که مانع از دستیابی تهران به سلاح هسته‌ای شود، بسیار راضی خواهد بود. او تاکید کرد که واشینگتن به تهران اجازه نخواهد داد که به سلاح هسته‌ای دست یابد.
+ترامپ گفت: «ما اجازه نخواهیم داد ایران به سلاح هسته‌ای دست پیدا کند. بنابراین این سه کشور به همراه دیگران با من تماس گرفتند و آنها به طور مستقیم با نمایندگان ما و در حال حاضر با حکومت ایران در حال گفت‌وگو هستند و به نظر می‌رسد شانس بسیار خوبی وجود دارد که بتوانند به یک توافق برسند.»
+او افزود: «اگر بتوانیم بدون اینکه آنها را به شدت بمباران کنیم به این نتیجه برسیم، بسیار خوشحال خواهم شد.»
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240870
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240870_1779141917.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️یک مقام عراقی در گفتگو با نشریه انتخاب اعلام کرد که حدود ۵۰ درصد از کل حملات پهپادی انجام‌شده علیه کشورهای حوزه خلیج فارس، از داخل خاک عراق صورت گرفته است.
+همزمان، المانیتور به نقل از یک منبع آگاه گزارش داد که مقامهای عربستان سعودی بر این باورند که تقریبا تمامی حملات پهپادی و موشکی اخیر به این کشور، به جای ایران، از خاک عراق نشات گرفته است؛ ارزیابی و تحلیلی که اکنون مورد تایید دولت دونالد ترامپ در واشنگتن نیز قرار دارد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240869
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240869_1779141918.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رییس پلیس سن‌دیگو اعلام کرد درپی تیراندازی در مرکز اسلامی سن‌دیگو سه مرد بزرگسال کشته شدند و مهاجمان مظنون نیز جان باخته‌اند. پلیس گفت این حمله به عنوان یک جرم ناشی از نفرت در نظر گرفته شده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240868
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_240868_1779141918.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تماسی از ایران:
+«می‌گفت دست همدیگه رو ول نکنیم، حتی وقتی خودمون هم سختی داریم. همدلی اگر نباشه، هیچ‌چیز درست نمی‌شه»
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240867
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_240867_1779141920.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های داخل ایران گزارش دادند پدافند هوایی اصفهان فعال شده است.
+
+تاکنون مقام‌های جمهوری اسلامی توضیحی درباره علت فعال شدن پدافند هوایی در اصفهان ارائه نکرده‌اند.
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 11610
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ : اگر بتوانیم بدون اینکه حسابی آن‌ها را بمباران کنیم به نتیجه برسیم، من خیلی خوشحال خواهم شد
+
+اسرائیل را از تصمیم برای تعویق حمله به ایران مطلع کردم.
+@withyashar
+</div>
+
+## WithYashar — post 11609
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پرزیدنت ترامپ :
+
+ما به جمهوری اسلامی هیچ امتیازی نخواهیم داد. فقط تسلیم کامل!
+@withyashar
+</div>
+
+## WithYashar — post 11608
+
+<div align="center">
+  <a href="telegram/content/WithYashar_11608_1779141921.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: «ما آماده می‌شدیم که فردا یک حمله بسیار بزرگ انجام دهیم. من فعلاً آن را برای مدتی به تعویق انداختم؛ امیدوارم شاید برای همیشه، اما ممکن است فقط برای مدت کوتاهی باشد، چون گفت‌وگوهای بسیار مهمی با ایران داشته‌ایم و باید ببینیم نتیجه آن‌ها چه خواهد شد.
+
+از سوی عربستان، قطر، امارات و چند کشور دیگر از من خواسته شد که این اقدام را دو یا سه روز به تعویق بیندازیم؛ یک بازه کوتاه، چون آن‌ها فکر می‌کنند که بسیار به دستیابی به توافق نزدیک شده‌اند.
+@withyashar
+</div>
+
+## WithYashar — post 11607
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ درباره «گفت‌وگوهای مهم» با ایران:
+«این یک تحول بسیار مثبت است، اما خواهیم دید که آیا واقعاً به نتیجه‌ای می‌رسد یا نه.
+
+دوره‌هایی را داشته‌ایم که فکر می‌کردیم تقریباً به توافق نزدیک شده‌ایم، اما در نهایت موفق نشدیم؛ با این حال، این بار شرایط کمی متفاوت است.»
+@withyashar
+</div>
+
+## WithYashar — post 11606
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ : من فعلاً عقب انداختمش، امیدوارم شاید برای همیشه، ولی شاید هم فقط برای یه مدت کوتاه
+چون با ایران مذاکرات خیلی مهمی داشتیم و باید ببینیم چی ازش درمیاد
+@withyashar
+</div>
+
+## WithYashar — post 11605
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+@withyashar part5
+</div>
+
+## WithYashar — post 11604
+
+<div align="center">
+  <a href="telegram/content/WithYashar_11604_1779141922.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## WithYashar — post 11603
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علی قلهکی، ‏فعال رسانه‌ای: ترامپ شنبه‌ شب قصد حمله داشت که صبحش قطر به ایران هشدار داد و سران نظام رفتن مخفی شدن و علت عدم حمله پیدا نکردن لوکیشن سران نظام بوده. @withyashar
+</div>
+
+## WithYashar — post 11602
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علی قلهکی، ‏فعال رسانه‌ای:
+ترامپ شنبه‌ شب قصد حمله داشت که صبحش قطر به ایران هشدار داد و سران نظام رفتن مخفی شدن و علت عدم حمله پیدا نکردن لوکیشن سران نظام بوده.
+@withyashar
+</div>
+
+## WithYashar — post 11601
+
+<div align="center">
+  <img src="telegram/content/WithYashar_11601_1779141923.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شیمون ریکلین، خبرنگار کانال ۱۴ اسرائیل، امروز احتمالاً اطلاعات محرمانه‌ای را به صورت زنده در مورد عملیات‌های مرتبط با کمپین علیه ایران فاش کرد، از جمله گزارش‌هایی درباره آمادگی‌ها برای عملیات زمینی احتمالی در سایت هسته‌ای .
+
+ریکلین گفت تمریناتی انجام شده است که شامل نیروهای کماندو می‌شود که به سایت حمله کرده و اورانیوم غنی‌شده را استخراج می‌کنند، و افزود بر اساس آنچه شنیده، این ماده در عمق زمین در اصفهان دفن نشده است و «زمانی که وارد تأسیسات شوند، می‌توان لوله‌ها را استخراج کرد.»
+
+سانسورچی‌های نظامی اسرائیل درخواست کرده‌اند این بخش از پلتفرم‌های پخش حذف شود.
+
+اعضای یش عتید، از جمله رام بن-باراک و الازار استرن، از بوعاز بیسموت، رئیس کمیته امور خارجه و امنیت، خواستند جلسه‌ای فوری برای بحث درباره انتشار «اطلاعات ادعاشده محرمانه که می‌تواند به دستاوردهای کمپین در ایران آسیب برساند و به آینده استراتژیک کشور خسارت وارد کند» برگزار شود.
+@withyashar
+</div>
+
+## WithYashar — post 11600
+
+<div align="center">
+  <a href="telegram/content/WithYashar_11600_1779141924.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+@withyashar
+</div>
+
+## mwarmonitor — post 9286
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نصف امکانات ایران اینترنشنال داشتم الان به جای باراک راوید من شماره ترامپ داشتم
+</div>
+
+## mwarmonitor — post 9285
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔹خبرنگار: آقای رئیس‌جمهور، یک سوال در ادامه بحث ایران. کشورهای دیگه هم قبلاً این کار رو کردن؛ اون‌ها از شما خواستن که مسیرتون رو تغییر بدید تا یک توافق صلح رو جلوی پاتون بذارن و می‌گفتن که توافقی در راهه. اما هیچ‌چیز به نتیجه نرسیده. شما اشاره کردید که این بار فرق می‌کنه...
+🔸دونالد ترامپ: خب، خیلی چیزها به نتیجه رسیده. ما کشوری رو که قرار بود سلاح هسته‌ای داشته باشه گرفتیم و... عملاً ارتشش رو نابود کردیم؛ اون‌ها نیروی دریایی ندارن، نیروی هوایی ندارن، اون‌ها از نظر نظامی عملاً نابود شدن. این خیلیه، این دستاورد بزرگیه. ما همین الان هم می‌تونیم اونجا رو ترک کنیم و ۲۵ سال طول می‌کشه تا خودشون رو بازسازی کنن. آخرین چیزی که بهش فکر می‌کنن، به نظر من، موضوع هسته‌ایه. حالا باید این رو به صورت مکتوب دربیارن. اما وقتی می‌گید «هیچ‌چیز»، ما... ما کاملاً ارتششون رو نابود کردیم. ببخشید، از سی‌ان‌ان (CNN)... ما کاملاً ارتششون رو نابود کردیم، رهبری‌شون رو نابود کردیم. همون‌طور که می‌دونید، رهبرانشون از بین رفتن؛ رهبرانشون در سطح اول و سطح دوم از بین رفتن، الان داریم با نصفِ سطح سوم سر و کله می‌زنیم. و فکر می‌کنم ما به پیشرفت‌های زیادی دست پیدا کردیم.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9284
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_9284_1779141925.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## mwarmonitor — post 9283
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سناتور لیندسی گراهام:
+
+🔰همان‌طور که پیش‌تر گفته‌ام، هر توافقی که میان ایالات متحده آمریکا و ایران حاصل شود، باید برای تصویب به کنگره آمریکا ارائه گردد؛ همان‌گونه که در مورد برجام در دوران ریاست‌جمهوری باراک اوباما انجام شد.
+
+🔹اگر بتوانیم از طریق راه‌های دیپلماتیک و در عین تحقق اهداف امنیت ملی‌مان به این درگیری پایان دهیم، این یک دستاورد بزرگ خواهد بود.
+
+🔸همان‌طور که پیش‌تر نیز گفته‌ام، موضع دونالد ترامپ روشن است:
+
+➡️ عدم غنی‌سازی
+➡️ کنترل آمریکا بر حدود ۹۰۰ پوند اورانیوم با غنای بالا
+➡️ بازگشایی تنگه هرمز بدون هرگونه مداخله از سوی ایران
+➡️ ایران باید برنامه موشک‌های بالستیک دوربرد خود و هرگونه تلاش برای دستیابی به سلاح هسته‌ای را کنار بگذارد
+➡️ ایران باید حمایت از تمامی نیروهای نیابتی تروریستی در منطقه را متوقف کند
+
+🔸اما اینکه بگویم نسبت به این‌که ایران واقعاً با موارد لازم برای ایجاد توافقی که به‌طور اساسی با برجام متفاوت باشد موافقت خواهد کرد، یا وارد توافقی شود که در گذر زمان پایدار بماند، تردید دارم—کم‌گویی کرده‌ام.
+
+زمان نشان خواهد داد.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9282
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔹خبرنگار: کمی در مورد پستی که در «تروث سوشال» (Truth Social) درباره ایران گذاشتید توضیح بدید و بگید چه تصمیمی باعث شد که چرا به اون‌ها حمله نکردید؟
+🔸دونالد ترامپ: خب، کشورهای دیگه پیش من اومدن و گفتن که «ما داشتیم برای یک حمله بسیار بزرگ برای فردا آماده می‌شدیم.» من اون رو برای مدت کوتاهی به تعویق انداختم، امیدوارم که شاید برای همیشه باشه، اما احتمالاً برای یک مدت کوتاه.
+چون ما گفتگوهای بسیار بزرگی با ایران داشتیم و خواهیم دید که نتیجه این گفتگوها چی میشه. از ما توسط عربستان سعودی، قطر، امارات متحده عربی و برخی کشورهای دیگه درخواست شد که اگر بتونیم این کار رو برای دو یا سه روز—یک مدت زمان کوتاه—به تعویق بندازیم، چون اون‌ها فکر می‌کنن که دارن به توافق خیلی نزدیک میشن.
+و اگر بتونیم کاری کنیم که هیچ سلاح هسته‌ای به دست ایران نیفته، فکر می‌کنم اگر اون‌ها راضی باشن، ما هم احتمالاً راضی خواهیم بود.
+ما به اسرائیل اطلاع دادیم، به افراد دیگه‌ای در خاورمیانه که با ما در ارتباط بودن هم اطلاع دادیم و می‌دونید، این یک تحول بسیار مثبت هست؛ اما باید ببینیم که آیا نتیجه‌ای خواهد داشت یا نه. ما دوره‌های زمانی دیگه‌ای هم داشتیم که فکر می‌کردیم به توافق خیلی نزدیک شدیم و... کارساز نشد، اما این یکی کمی متفاوته.
+ما واقعاً فردا آماده یک اقدام بسیار بزرگ بودیم و این چیزی نبود که من مایل به انجامش باشم، اما چاره دیگه‌ای نداریم؛ چون ما نمی‌تونیم اجازه بدیم ایران به سلاح هسته‌ای دست پیدا کنه.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9281
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_9281_1779141926.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## mwarmonitor — post 9280
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 ترامپ رسماً دنیا را گذاشته روی ویبره و در این میان، مردم ایران هم به جای زندگی، دارند روی تردمیلِ اضطرابِ ملی دو می‌زنند! تصور کن ارتش آمریکا با مدرن‌ترین تجهیزات میلیارد دلاری و خلبان‌های دست‌به‌ماشه، منتظر شمارش معکوسند که ناگهان ترامپ بعد از یک لیوان نوشابه رژیمی گوشی را برمی‌دارد و می‌نویسد: «بچه‌ها کنسل شد! محمد و تمیم زنگ زدند، خیلی باادب بودند، فعلاً نزنید؛ ولی پوتین‌ها را درنیاورید که شاید نیم‌ساعت دیگر نظرم عوض شد!» این وسط، ۸۵ میلیون ایرانی که سال‌هاست با فرمول «دلار، سکه، سایه جنگ» زندگی می‌کنند، گوشت قربانی این مودی املاکی هستند؛ مردمی که باید هر ثانیه صفحه ترامپ را رفرش کنند تا ببینند فردا قرار است بروند سر کار یا بروند پناهگاه! دیپلماسی او دقیقاً شبیه تعارف‌های شاه‌عباسی شده؛ ملت را تا دقیقه ۹۹ به لبه نابودی می‌برد، سکته چشمی و قلبی را به بالاترین حد می‌رساند، بازار بورس و نفت را ویبره می‌دهد، و بعد در نقش منجی صلح‌طلب ظاهر می‌شود تا همه نفس راحت بکشند و بگویند «دمت گرم که امروز ما را نکشتی!» قضیه وقتی سیاه‌تر می‌شود که می‌بینی سرنوشت، آینده و حتی قیمت پیاز در ایران، به میزان کیفیت خوابِ دیشبِ یک پیرمرد مو نارنجی در فلوریدا گره خورده است؛ پیرمردی که مرز بین جنگ تمام‌عیار و صلح جهانی در ذهنش، به اندازه یک ویبره گوشی و یک توییت نصفه‌شبی فاصله دارد!
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 341904
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341904_1779141928.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NEW: Children at a nearby school are escorted out by police after an active shooter was reported at the Islamic Center of San Diego.
+
+2 teen suspects are dead from what appear to be self-inflicted gunshot wounds, according to police.
+
+Officials say at least 3 adult male victims were killed in the shooting.
+</div>
+
+## FoxNewsTwitter — post 341903
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341903_1779141930.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"I can tell you with 100% certainty the heroic actions of the responding officers and deputies is beyond words."
+
+San Diego Police Chief Scott Wahl praises the officers who responded to the deadly shooting at the county's largest Islamic center.
+
+"To know that this many of our public servants are willing to leave their loved ones behind, drop what they're doing, and run towards gunfire without asking any questions is remarkable."
+</div>
+
+## FoxNewsTwitter — post 341902
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341902_1779141932.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: San Diego police confirm 2 male teenage suspects, ages 17 and 19, died from what appear to be self-inflicted gunshot wounds following a shooting at the Islamic Center of San Diego.
+</div>
+
+## FoxNewsTwitter — post 341901
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_341901_1779141933.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH LIVE: President Trump participates in healthcare affordability event https://twitter.com/i/broadcasts/1nJOLEDnMlnxR
+</div>
+
+## FoxNewsTwitter — post 341900
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_341900_1779141934.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+🚨BREAKING: San Diego authorities say three adults were killed in a shooting at the Islamic Center of San Diego on Monday. Police say two teen suspects are also dead.
+</div>
+
+## FoxNewsTwitter — post 341899
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341899_1779141934.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: The FBI confirms 2 teen suspects are dead following the shooting at the Islamic Center of San Diego.
+
+Officials also confirm at least 3 adult male victims were killed in the attack.
+</div>
+
+## pm_afshaa — post 91000
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91000_1779141936.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴دونالد ترامپ:
+به نظر میرسه شانس بسیار خوبی برای رسیدن به توافق وجود داره؛ اگر بتونیم بدون بمباران این کار رو انجام بدیم، خوشحال میشم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90999
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_90999_1779141936.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: ما حملات رو فقط برای 2-3 روز تعویق انداختیم تا ببینیم چه میشه!
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90998
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_90998_1779141937.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢علی قلهکی، ‏فعال رسانه‌ای:
+ترامپ شنبه‌ شب قصد حمله داشت که صبحش قطر به ایران هشدار داد و سران نظام رفتن مخفی شدن و علت عدم حمله پیدا نکردن لوکیشن سران نظام بوده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90997
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_90997_1779141937.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مقام امنیتی اسرائیلی به کانال 12:
+در کابینه همه از دست ترامپ کلافه شدیم
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 337847
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337847_1779141938.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در یک سخنرانی گفت اگر بتواند به توافقی با جمهوری اسلامی دست یابد که مانع از دستیابی تهران به سلاح هسته‌ای شود، بسیار راضی خواهد بود. او تاکید کرد که واشینگتن به تهران اجازه نخواهد داد که به سلاح هسته‌ای دست یابد.
+ترامپ گفت: «ما اجازه نخواهیم داد ایران به سلاح هسته‌ای دست پیدا کند. بنابراین این سه کشور به همراه دیگران با من تماس گرفتند و آنها به طور مستقیم با نمایندگان ما و در حال حاضر با حکومت ایران در حال گفت‌وگو هستند و به نظر می‌رسد شانس بسیار خوبی وجود دارد که بتوانند به یک توافق برسند.»
+او افزود: «اگر بتوانیم بدون اینکه آنها را به شدت بمباران کنیم به این نتیجه برسیم، بسیار خوشحال خواهم شد.»
+
+https://iranintl.com/202605189314
+</div>
+
+## IranIntlTV — post 337846
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337846_1779141938.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «مردم ایران از ترامپ انتظار دارند به مذاکرات طولانی با جمهوری اسلامی پایان دهد. مذاکراتی که به باور آنها نه رفتار حکومت را تغییر داده و نه مانع سرکوب داخلی و تنش‌آفرینی منطقه‌ای شده است. ادامه این مذاکرات به معنای دادن فرصت و تنفس سیاسی به جمهوری اسلامی تلقی می‌شود.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 337845
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337845_1779141940.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بنیامین نتانیاهو در پی پاسخ تازه جمهوری اسلامی به پیشنهاد آمریکا برای پایان جنگ، نشست امنیتی با حضور وزیران و مشاوران ارشدش برگزار می‌کند. هم‌زمان ترامپ در تماس با نتانیاهو گفته زمان برای جمهوری اسلامی رو به پایان است.
+@iranintltv
+</div>
+
+## IranIntlTV — post 337844
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337844_1779141941.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «برداشت فرماندهان سپاه این است که آمریکا و اسرائیل توان شکست نظامی جمهوری اسلامی را ندارند و تلاش می‌کنند از مسیر مذاکره امتیاز بگیرند. بنابراین تصور می‌کنند عدم عقب‌نشینی در مذاکرات، پیامد نظامی جدی نخواهد داشت. این باور فرماندهان سپاه می‌تواند ناشی از توهم پیروزی باشد، در حالی که حملات احتمالی آینده ممکن است کاملا متفاوت و گسترده‌تر باشد.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 337843
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337843_1779141942.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رویترز به نقل از سه مقام امنیتی و دو منبع دولتی از گسترش همکاری‌های پاکستان و عربستان سعودی در چارچوب یک پیمان دفاعی متقابل خبر داد. این پیمان، اعزام ۸ هزار نیروی نظامی، حدود ۱۶ فروند جنگنده جی‌اف-۱۷، دو اسکادران پهپادی و یک سامانه پدافند هوایی را شامل می‌شود.
+@iranintltv
+</div>
+
+## IranIntlTV — post 337842
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337842_1779141944.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «ترامپ می‌گوید حمله برنامه‌ریزی شده روز سه‌شنبه به جمهوری اسلامی را به درخواست رهبران امارات، عربستان و قطر به تعویق انداخته تا یک شانس دیگر به توافق داده شود. ترامپ گفته ارتش آمریکا آماده است در صورت عدم توافق حمله را بی‌درنگ شروع کند.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 337841
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337841_1779141945.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رییس پلیس سن‌دیگو اعلام کرد درپی تیراندازی در مرکز اسلامی سن‌دیگو سه مرد بزرگسال کشته شدند و مهاجمان مظنون نیز جان باخته‌اند. پلیس گفت این حمله به عنوان یک جرم ناشی از نفرت در نظر گرفته شده است.
+https://iranintl.com/202605188629
+</div>
+
+## ManotoTV — post 105616
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105616_1779141946.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تماسی از ایران:
+«می‌گفت دست همدیگه رو ول نکنیم، حتی وقتی خودمون هم سختی داریم. همدلی اگر نباشه، هیچ‌چیز درست نمی‌شه»
+</div>
+
+## ManotoTV — post 105615
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105615_1779141947.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های داخل ایران گزارش دادند پدافند هوایی اصفهان فعال شده است.
+
+تاکنون مقام‌های جمهوری اسلامی توضیحی درباره علت فعال شدن پدافند هوایی در اصفهان ارائه نکرده‌اند.
+</div>
+
+## FarsiVOA — post 218097
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺ترامپ اعلام کرد رهبران کشورهای عربی از او خواستند برای فرصت دادن به توافق «دو یا سه روز» حمله به جمهوری اسلامی را عقب بیاندازد
+
+▪️دونالد ترامپ، رئیس‌جمهوری آمریکا، روز دوشنبه ۲۸ اردیبهشت، ساعاتی پس از آنکه اعلام کرد حمله روز سه‌شنبه به جمهوری اسلامی را متوقف کرده‌است، در این باره به خبرنگاران توضیحاتی داد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8151362.html
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 14461
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14461_1779141948.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تیراندازی در یک مرکز اسلامی در آمریکا 🔸رسانه‌ها روز دوشنبه از حضور یک فرد مسلح و تیراندازی در مرکز اسلامی سن دیگو خبر می‌دهند. 🔹پلیس سن دیگو از مردم خواست که از حضور در این منطقه خودداری کنند. ☆Phantom☆ 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین…
+</div>
+
+## IranianMinds — post 20367
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_20367_1779141948.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چیشده شل شدین ؟
+
+🔴 پزشکیان :
+
+گفتگو به معنای تسلیم نیست؛
+جمهوری‌اسلامی ایران با عزت و اقتدار وارد گفتگو میشه و از حقوق خودش عقب‌نشینی نمیکنه.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 281404
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_281404_1779141949.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌ ‌ ‌
+خبرگزاری هرانا، ارگان خبری مجموعه فعالان حقوق بشر، می‌گوید از زمان شروع جنگ اخیر تا هفته گذشته، دست‌کم ۴۰۲۳ بازداشت را در ایران ثبت کرده است.
+
+به گفته این نهاد که مقرش در آمریکاست، اتهام‌های مطرح‌شده شامل جاسوسی، تهدید علیه امنیت ملی و ارتباط یا ارسال مطالب مربوط به جنگ به رسانه‌های خارجی است.
+
+بنابر این گزارش، مقام‌های ایران از جنگ «برای تشدید روایت‌های امنیتی و توجیه بازداشت‌ها، محدودیت آزادی بیان و اعمال خشونت علیه غیرنظامیان استفاده کرده‌اند.»
+
+احمدرضا رادان، فرمانده کل نیروی انتظامی، دیروز گفت از آغاز جنگ اخیر «بیش از ۶۵۰۰ نفر از وطن‌فروشان و جاسوسان دستگیر شده‌اند که ۵۶۷ نفر از آنان مرتبط با گروهک‌های ضدانقلاب و عناصر نفاق بودند.»
+
+او درباره اعتراضات دی‌ماه گفت: «هیچ‌گونه رهاسازی انجام نشده و همچنان در حال شناسایی و دستگیری این افراد هستیم.»
+
+هزاران نفر در اعتراضات سراسری دی بازداشت شده‌اند و رئیس قوه قضائیه خواستار رسیدگی سریع و بدون اغماض به پرونده آنها شده است.
+
+https://bbc.in/4fzVJR8
+📷 EPA/Shutterstock
+@BBCPersian
+</div>
+
+## BBCPersian — post 281403
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻 شهردار سن دیگو: به همشهریان مسلمان اطمینان می‌دهم که هیچ کمکی دریغ نخواهد شد
+
+تاد گلوریا، شهردار سن‌دیگو، گفت از این که کودکانی که هنگام حمله در مدرسه مشغول تحصیل بودند، در امان مانده‌اند، سپاسگزار است.
+
+او ادامه داد: «برای جامعه مسلمانان محلی، دعاهای من با شماست.»
+
+آقای گلوریا گفت می‌خواهد به جامعه مسلمانان اطمینان دهد که «هیچ منبعی دریغ نخواهد شد» تا امنیت آن‌ها در برابر خشونت تامین شود.
+
+او همچنین از نیروهای پلیس «عمیقا قدردانی» کرد و این حادثه را «وضعیتی غم‌انگیز» توصیف کرد.
+
+شهردار سن‌دیگو همچنین به خانواده قربانیان تسلیت گفت و افزود بازرسان «هر اقدام لازم» را برای روشن شدن ابعاد حادثه انجام خواهند داد.
+
+او تاکید کرد: «نفرت جایی در شهر سن‌دیگو ندارد.»
+
+https://bbc.in/3PuRJqw
+@BBCPersian
+</div>
+
+## BBCPersian — post 281402
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻 فعال شدن پدافند هوایی در اصفهان
+
+گزارش‌ها از ایران حاکی از شنیده شدن صدای پدافند در شهر اصفهان است.
+
+خبرگزاری مهر هم با تایید این گزارش‌ها نوشته:‌ «هنوز مسئولان توضیحی در رابطه با چرایی فعالیت پدافند اصفهان ارائه نکرده‌اند.»
+
+پیش از این گزارش‌هایی از فعال شدن پدافند جزیره قشم هم منتشر شده بود که خبرگزاری تسنیم گفته بود برای مقابله با «ریز پرنده‌ها» بوده است.
+
+https://bbc.in/4wyq493
+@BBCPersian
+</div>
+
+## BBCPersian — post 281401
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻 حمله به مسجد جامع سن دیگو؛‌ پلیس تیراندازی را تحت عنوان «جنایت ناشی از نفرت» بررسی می‌کند
+
+اسکات وال، رئیس پلیس سن‌دیگو، گفت حادثه رخ‌داده در مرکز اسلامی در حال حاضر به عنوان «جنایت ناشی از نفرت (تروریسم داخلی)» بررسی می‌شود و پلیس همکاری نزدیکی با اف‌بی‌آی دارد.
+
+مارک رمیلی، مامور ویژه اف‌بی‌آی، نیز در ادامه گفت سه مرد بزرگسال که در تیراندازی هدف قرار گرفته بودند، جان باخته‌اند.
+
+او افزود مرگ دو مظنون، که هر دو نوجوان بودند، تایید شده است.
+
+آقای رمیلی گفت اف‌بی‌آی با «دقت کامل» در حال بررسی ابعاد حادثه است و همه منابع خود را برای روشن شدن جزئیات این حمله به کار گرفته است.
+
+او همچنین از مردم خواست هرگونه اطلاعاتی را که می‌تواند به روند تحقیقات کمک کند، در اختیار مقام‌ها قرار دهند.
+
+https://bbc.in/49apwMr
+@BBCPersian
+</div>
+
+## BBCPersian — post 281400
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻 تیراندازی در مسجد جامع سن‌دیگو؛ پلیس: جسد دو نوجوان در خودرو پیدا شد که احتمالا تیراندازها هستند
+
+
+رئیس پلیس سن‌دیگو اعلام کرد دو مردی که در نزدیکی محل حادثه جان باخته پیدا شدند، به احتمال زیاد مظنونان تیراندازی هستند.
+
+مقام‌ها گفتند اجساد این دو نوجوان پسر داخل یک خودرو در نزدیکی مسجد پیدا شده است.
+
+رئیس پلیس همچنین گفت دو مظنون، که گفته می‌شود هر دو نوجوان بودند، داخل یک خودرو با جراحاتی ناشی از شلیک به خود پیدا شدند.
+
+اسکات وال، رئیس پلیس سن‌دیگو، گفت: «جزئیات اتفاقات منتهی به این حادثه، آنچه دقیقا رخ داده و زمان دقیق وقوع آن، در روزهای آینده روشن خواهد شد.»
+
+رئیس پلیس گفت ماموران در ساعت ۱۱:۴۳ به وقت محلی به محل حادثه اعزام شدند و «در مقابل محل، با آنچه به نظر می‌رسید سه قربانی جان‌باخته باشند» روبه‌رو شدند.
+
+او افزود نیروهای بیشتر پلیس ظرف چهار دقیقه به محل رسیدند.
+
+به گفته او، «تقریبا همزمان، تماس‌هایی از چند خیابان آن‌طرف‌تر دریافت کردیم که از ادامه تیراندازی فعال خبر می‌داد.»
+
+https://bbc.in/4nAIJwT
+@BBCPersian
+</div>
+
+## BBCPersian — post 281399
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻 تیراندازی در مسجد جامع سن دیگو؛ پلیس: سه نفر کشته شدند و دو مظنون هم «کشته شده‌اند»
+
+ساعتی بعد از تیراندازی در مسجد جامع سن‌دیگو، اسکات وال، رئیس پلیس این شهر، در حال گفت‌وگو با رسانه‌هاست.
+
+او گفت در حال حاضر هیچ تهدید دیگری در منطقه وجود ندارد و دو مظنون «کشته شده‌اند».
+
+رئیس پلیس همچنین افزود سه بزرگسال در مرکز اسلامی جان باخته‌اند.
+
+او گفت: «قلب ما با خانواده‌هایی است که در این لحظه در حال مطلع شدن از اتفاقی هستند که برای عزیزانشان رخ داده است.»
+
+مقام‌های پلیس هم اکنون در حال دادن آخرین اطلاعات به خبرنگاران هستند. با ما باشید تا جزییات بیشتر را همزمان برایتان گزارش کنیم.
+
+https://bbc.in/4wsKH6m
+@BBCPersian
+</div>
+
+## BBCPersian — post 281398
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻 تیراندازی در مسجد جامع سن دیگو؛ با انتقال مجروحان، مراکز درمانی سن دیگو در وضعیت فوق‌العاده قرار گرفتند
+
+سخنگوی شبکه درمانی «شارپ هلث‌کر» به بی‌بی‌سی گفت بیمارستان «شارپ مموریال» این شبکه در حال پذیرش مجروحان مرتبط با تیراندازی است.
+
+آلیشیا کوک، سخنگوی این مرکز درمانی، گفته است: «گزارش‌ها حاکی از آن است که چندین نفر زخمی شده‌اند.»
+
+او افزود: «پروتکل‌های وضعیت بحرانی ما فعال شده و در حال هماهنگی با شهرستان سن‌دیگو و دیگر نهادها برای واکنش به این حادثه هستیم.»
+
+تاد گلوریا، شهردار سن‌دیگو، اعلام کرد پلیس این شهر به او اطلاع داده که در حال حاضر هیچ تهدید ادامه‌داری متوجه جامعه نیست.
+
+او در پیامی در شبکه‌های اجتماعی از نیروهای امدادی و ماموران پلیس «که به سرعت برای حفاظت از جان مردم و تامین امنیت منطقه واکنش نشان دادند» قدردانی کرد.
+
+سن دیگو در جنوب کالیفرنیا و مرز این ایالت با مکزیک واقع شده است.
+
+همچون لس‌آنجلس و حومه آن مانند منطقه اورنج کانتی، سن‌دیگو هم میزبان جامعه بزرگی از مهاجران ایرانی است.
+
+https://bbc.in/4nHwkHC
+@BBCPersian
+</div>
+
+## BBCPersian — post 281397
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_281397_1779141949.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻چند سینماگر ایرانی اخیرا به دادسرای فرهنگ و رسانه در تهران احضار شده‌اند و اتهام «همکاری با دول متخاصم خارجی علیه جمهوری اسلامی» به آنها ابلاغ شده است.
+
+هومن سیدی، بازیگر و فیلمساز، و سعید روستایی، کارگردان و تهیه‌کننده سینما، از جمله احضارشدگان هستند.
+
+بی‌بی‌سی از مصداق اتهامات آنها اطلاع ندارد و معلوم نیست که آیا این احضارها به فعالیت‌های هنری آنها مربوط است یا به فعالیت‌های دیگر.
+
+📷 AsrIran
+https://bbc.in/3PomJIX
+@BBCPersian
+</div>
+
+## BBCPersian — post 281396
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻 تیراندازی در بزرگترین مسجد و مرکز اسلامی سن دیگو آمریکا
+
+پلیس شهر سن دیگو - در جنوب کالیفرنیا - در واکنش به تیراندازی در بزرگترین مسجد این شهر وارد عمل شده است و مدرسه مجاور این مسجد را هم قرق کرده و همه دانش‌آموزان در وضعیت پناه گرفتن قرار گرفته‌اند.
+
+یک شاهد عینی در گفت‌وگو با شبکه سی‌بی‌اس نیوز، شریک خبری بی‌بی‌سی در آمریکا، گفت صدای شلیک حدود ۳۰ گلوله را شنیده که به گفته او، به نظر می‌رسید از یک «سلاح نیمه‌خودکار» شلیک شده باشد.
+
+او گفت ابتدا حدود ۱۲ گلوله شنیده، سپس وقفه‌ای کوتاه ایجاد شده و بعد دوباره احتمالا حدود ۱۲ گلوله دیگر شلیک شده است.
+
+این مرد که بازنشسته است و هنگام حادثه در خانه مشغول خوردن ناهار بود، گفت با شماره اضطراری ۹۱۱ تماس گرفته و پلیس ظرف «پنج تا ۱۰ دقیقه» در محل حاضر شده است.
+
+او افزود این مسجد در ایام تعطیلات بسیار شلوغ می‌شود.
+
+این شاهد گفت: «خوشبختانه این اتفاق روز جمعه رخ نداد، چون خیابان‌ها پر از جمعیت می‌بود.»
+
+این مرکز اسلامی، بزرگ‌ترین مسجد در شه سن‌دیگو به شمار می‌رود و بنا بر وب‌سایت آن، بیش از ۵ هزار عضو در جامعه مذهبی خود دارد.
+
+این مجموعه همچنین شامل مدرسه «الرشید» است که دوره‌های آموزش دینی و زبان ارائه می‌کند.
+
+بر اساس اطلاعات وب‌سایت این مرکز، ماموریت آن خدمت‌رسانی به جامعه مسلمانان و همچنین «همکاری با جامعه گسترده‌تر برای کمک به افراد کم‌برخوردار، آموزش و بهبود کشور» عنوان شده است.
+
+https://bbc.in/49ampEf
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 389710
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کونی که امشب تو صداوسیما به نمایش گذاشته شد
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389709
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389709_1779141950.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صداوسیما امشب یکی رو کون لخت نشون داد...
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389708
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389708_1779141951.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هر تصمیمی که در خصوص روافض بخواد گرفته شه، چه جنگ احتمالی چه توافق احتمالی، دو سه هفته بیشتر فرصت برای انجامش نیست،
+
+
+چرا که طبق گفته‌ی مدیر اجرایی آژانس بین‌المللی انرژی [IEA]، فقط چند هفته تا تموم شدن «ذخایر تجاری نفت» باقی مونده که در صورت تموم شدن ذخایر تجاری، قیمت نفت به مراتب افزایش پیدا می‌کنه که هیچ،
+
+کشورها مجبور می‌شن برای کنترل بازار از «ذخایر نفت استراتژیک»‌شون استفاده کنن که خب خیلی مطلوب‌شون نیست،
+
+این تنها کارت بازی که روافض در دست دارن و با فرسایشی کردن روند مذاکرات سعی دارن وضعیت رو تا جای ممکن کش بدن تا به نقطه‌ی بحرانی برسه،
+
+از طرفی حمله‌ی محدود آمریکا هم جوابگوی جلوگیری از اون وضعیت بحرانی قیمت نفت نیست و آمریکا دو راه بیشتر پیش رو نداره:
+
+یا باید با یک حمله‌ی همه‌جانبه و به مراتب پرقدرت‌تر از قبل چنان ضربه‌ای بزنه که تمام اهداف نظامی و بخش عمده‌ی زیرساخت‌های انرژی به منظور تسلیم کردن روافض از بین بره [که خب متأسفانه نامطلوب‌ترین حالت ممکن برای ساقط کردن این رژیم حرومیه و احتمالاً انجامش آخرین پلن شیر خدا از سر ناچاری باشه]،
+
+و یا باید با رژیم روافض به توافق برسه که با توجه به روند فعلی هنوز نشونه‌ای از رسیدن به خواسته‌هایی که آمریکا اعلام کرده بود از جمله تحویل ۴۸۰ کیلوگرم اورانیوم و بازکردن تنگه‌ی هرمز و غیره نیست.
+
+در حال حاضر و با توجه به فشار و هشداری که پاکستان قرمساق به رژیم روافض داده، درصدی امکان عقب‌نشینی از سمت برخی از سران روافض خدعه‌گر هست، حداقل از توئیت پوزیده این برداشت رو می‌شه کرد،
+
+اما نکته اینجاست که رژیم شیعه‌سانان رافضی تیکه‌پاره‌تر این حرفاست که تصمیم‌گیری در این مورد در اختیار موجود چپ‌و‌چوله‌ای مثه پوزیده باشه،
+
+بنابراین تا اعلام نظر هفت‌هشت گروه مختلف رژیم شیعه‌سانان که از دقایقی دیگه شروع به جفتک اندازی می‌کنن باید منتظر موند که آیا آخرین اتمام حجت شیر خدا برای تسلیم رژیم جواب می‌ده یا خیر.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389707
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389707_1779141951.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ژنرال محسن رضایی:
+باز امریکارو شکست دادیم
+
+همین که تو زنده‌ای، ارتقاع درجه پیدا کردی یعنی بزرگترین عملیات فریب امریکا با موفقیت انجام شده
+
+
+@Dirty_Kids 👻
+</div>
+
+## manototv — post 105616
+
+<div align="center">
+  <a href="telegram/content/manototv_105616_1779141952.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تماسی از ایران:
+«می‌گفت دست همدیگه رو ول نکنیم، حتی وقتی خودمون هم سختی داریم. همدلی اگر نباشه، هیچ‌چیز درست نمی‌شه»
+</div>
+
+## manototv — post 105615
+
+<div align="center">
+  <a href="telegram/content/manototv_105615_1779141953.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های داخل ایران گزارش دادند پدافند هوایی اصفهان فعال شده است.
+
+تاکنون مقام‌های جمهوری اسلامی توضیحی درباره علت فعال شدن پدافند هوایی در اصفهان ارائه نکرده‌اند.
+</div>
+
+## alonews — post 120987
+
+<div align="center">
+  <a href="telegram/content/alonews_120987_1779141954.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: ایران نهایتا ۳روز زمان داره
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120986
+
+<div align="center">
+  <a href="telegram/content/alonews_120986_1779141954.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رئیس جمهور ترامپ در مورد ایران:
+ما به کشوری که قرار بود سلاح هسته ای داشته باشد رفتیم و عملا ارتش آن را نابود کردیم.
+
+
+🔴ما میتونیم همین الان بریم و 25 سال طول میکشه تا دوباره بسازن فکر کنم آخرین چیزی که اونا بهش فکر میکنن هسته ایه حالا بايد اينو به صورت کتبي بنويسن
+
+
+🔴ما ارتش اونا رو کاملا نابود کرديم ما رهبری اونا رو نابود کردیم‌‌
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120985
+
+<div align="center">
+  <a href="telegram/content/alonews_120985_1779141956.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ:
+ما با محاصره دریایی، دیوار فولادی دور ایران ساخته‌ایم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120984
+
+<div align="center">
+  <a href="telegram/content/alonews_120984_1779141956.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ به زن‌های داخل جمعیت :
+- شما خیلی خوشگل و خوب به نظر میاید، شما دوتا، بیاید اینجا
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120983
+
+<div align="center">
+  <a href="telegram/content/alonews_120983_1779141957.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رئیس جمهور ترامپ:
+ارتش ما بزرگترین ارتش در هر نقطه از جهان است.
+
+
+🔴من تازه چین رو ترک کردم و باید بگم که رئیس جمهور شی خیلی خیلی از ارتش ما تعریف کرد‌‌
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120982
+
+<div align="center">
+  <a href="telegram/content/alonews_120982_1779141959.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری/پرزیدنت ترامپ :
+ما به جمهوری اسلامی هیچ امتیازی نخواهیم داد. فقط تسلیم کامل!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120981
+
+<div align="center">
+  <a href="telegram/content/alonews_120981_1779141959.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خبرنگار: آیا آمریکایی‌ها باید نگران ابولا باشند؟
+
+
+🔴پرزيدنت ترامپ: من نگران همه چیز هستم. فکر می‌کنم که در حال حاضر به آفریقا محدود شده است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120980
+
+<div align="center">
+  <a href="telegram/content/alonews_120980_1779141960.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: به نظر میرسد شانس خوبی برای رسیدن به توافق با ایران وجود دارد‌‌
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120979
+
+<div align="center">
+  <a href="telegram/content/alonews_120979_1779141960.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ درباره «گفت‌وگوهای مهم» با ایران:
+«این یک تحول بسیار مثبت است، اما خواهیم دید که آیا واقعاً به نتیجه‌ای می‌رسد یا نه.
+
+
+🔴دوره‌هایی را داشته‌ایم که فکر می‌کردیم تقریباً به توافق نزدیک شده‌ایم، اما در نهایت موفق نشدیم؛ با این حال، این بار شرایط کمی متفاوت است.»
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120978
+
+<div align="center">
+  <a href="telegram/content/alonews_120978_1779141960.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: اگر بتوانیم توافقی را منعقد کنیم که مانع دستیابی ایران به سلاح هست‌های شود ، از آن راضی خواهیم بود‌‌
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120977
+
+<div align="center">
+  <a href="telegram/content/alonews_120977_1779141961.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ درباره ایران : من فعلاً عقب انداختمش، امیدوارم شاید برای همیشه، ولی شاید هم فقط برای یه مدت کوتاه
+- چون با ایران مذاکرات خیلی مهمی داشتیم و باید ببینیم چی ازش درمیاد
+- از من خواستن عربستان، قطر، امارات و چند کشور دیگه که اگه میشه این رو دو سه روز عقب بندازیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120976
+
+<div align="center">
+  <a href="telegram/content/alonews_120976_1779141962.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ : ما داشتیم آماده می‌شدیم که فردا یه حمله خیلی بزرگ و جدی انجام بدیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120975
+
+<div align="center">
+  <a href="telegram/content/alonews_120975_1779141964.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رئیس جمهور ترامپ می گوید که قیمت داروها را 400 ٪ ، 500 ٪ ، 600 ٪ و حتی 700 ٪ کاهش داده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120974
+
+<div align="center">
+  <a href="telegram/content/alonews_120974_1779141965.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تیراندازی فعال در مرکز اسلامی سن دیگو به نظر می‌رسد حمله‌ای وحشتناک باشد. 
+🔴 تصاویر هلی‌کوپتر نشان می‌دهد جسدی در برکه‌ای از خون بیرون ساختمان افتاده است 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120973
+
+<div align="center">
+  <a href="telegram/content/alonews_120973_1779141965.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈قلهکی، ‏فعال رسانه ای حکومتی:
+ترامپ «شنبه‌شب» قصد حمله داشت که صبح آن قطر به ایران هشدار داد. علت عدم حمله پیدا نکردن لوکیشن سران نظام بوده است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120972
+
+<div align="center">
+  <a href="telegram/content/alonews_120972_1779141965.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈شعار جدید رونمایی شد
+‼️
+
+
+🔴تندروهای خیابون امشب شعار مرگ بر "امارات" میدادن
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120971
+
+<div align="center">
+  <a href="telegram/content/alonews_120971_1779141966.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈هاآرتص: مقامات اسرائیلی از دست ترامپ کلافه شده‌اند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120970
+
+<div align="center">
+  <a href="telegram/content/alonews_120970_1779141966.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+واسه اولین بار تو تاریخ؛ صداوسیما امشب یکی رو کون لخت نشون داد...
+
+@AloSport
+</div>
+
+---
 📅 بروزرسانی: 1405/02/29 00:25
 ---
 
