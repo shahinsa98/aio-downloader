@@ -7,6 +7,1175 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/30 01:19
+---
+
+## VahidOOnLine — post 241055
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_241055_1779227350.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️علی خضریان، عضو کمیسیون امنیت ملی و سیاست خارجی مجلس شورای اسلامی، روز سه‌شنبه ۲۹ اردیبهشت درگفتگویی با اشاره به مواضع مقام‌های ترکیه تاکید کرد که جمهوری اسلامی اجازه نمی‌دهد هیچ کشوری برای آن «باید» تعیین کند.
+او خطاب به هاکان فیدان، وزیر امور خارجه ترکیه، گفت که از این پس نباید خارج از مرزهای کشورش از واژه «باید» در قبال جمهوری اسلامی استفاده کند و افزود  ما سیاست‌های خود را به‌طور مستقل تعیین می‌کنیم.
+خضریان همچنین با اشاره به ساختار تصمیم‌گیری در سیاست خارجی جمهوری اسلامی، گفت این سیاست‌ها تحت نظارت رهبر جمهوری اسلامی، در شورای عالی امنیت ملی تصویب و توسط نهادهای مرتبط از جمله مجلس شورای اسلامی مورد نظارت قرار می‌گیرد. او در پایان  گفت: «ترکیه حد و حدود کشور خودش رو نگه دارد تا احترام متقابل بین دو کشور همچنان باقی بماند.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241054
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_241054_1779227351.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لیندزی گراهام، سناتور جمهوری‌خواه، با ابراز امیدواری مبنی بر اینکه دولت ترامپ پس از ماه‌ها مذاکره با تهران، هرگونه تلاش جمهوری اسلامی برای بار دیگر به تاخیر انداختن مذاکرات را رد کند، گفت حکومت ایران در حال وقت‌کشی و بازی کردن است.
+گراهام گفت: «حکومت ایران ماه‌ها فرصت داشته است تا به توافق برسد، اما به نظر من روشن است که آنها در حال بازی کردن هستند. ترجیح من یک راه‌حل دیپلماتیک است، اما قدیمی‌ترین ترفند تهران در این زمینه تاخیر، تاخیر، تاخیر است. در مورد هر توافق احتمالی، مشتاقم آن را در سنا بررسی کنم.»
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241053
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_241053_1779227352.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️نیویورک‌پست روز سه‌شنبه در گزارشی نوشت فیفا تصمیم گرفته ورود پرچم‌ها و نمادهای پیش از انقلاب ملی ایران «شیر و خورشید»، به ورزشگاه‌های جام جهانی ۲۰۲۶ را ممنوع کند.
+بر اساس این گزارش، فیفا این نمادها را مغایر با قوانین مربوط به اقلام «سیاسی، توهین‌آمیز یا تبعیض‌آمیز» دانسته است. در مقابل، پرچم فلسطین به‌دلیل آن‌که مربوط به یکی از اعضای رسمی فیفا عنوان شده، مجاز اعلام شده است.
+پرچم شیر و خورشید که پیش از انقلاب ۱۳۵۷ پرچم رسمی ایران بود، در سال‌های اخیر به نمادی اعتراضی در میان بخشی از ایرانیان خارج از کشور تبدیل شده و در مسابقات بین‌المللی فوتبال نیز بارها دیده شده است.
+نیویورک‌پست همچنین به واکنش برخی فعالان ایرانی-آمریکایی اشاره کرده که گفته‌اند اجرای چنین ممنوعیتی می‌تواند با اعتراض گسترده هواداران ایرانی در جریان مسابقات همراه شود. گزارش‌های مشابهی نیز پیش‌تر درباره محدودیت این نماد در جام جهانی ۲۰۲۲ قطر منتشر شده بود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241051
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_241051_1779227352.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حجت‌الله ناصحی‌پور، معاون گردشگری اداره میراث‌فرهنگی، گردشگری و صنایع‌دستی کاشان، گفت کافه مجموعه تاریخی عامری‌ها به دلیل گزارش وقوع دو مورد رعایت نکردن حجاب اجباری پلمب شد. او افزود مراجع ذی‌ربط پس از دریافت گزارش‌ها، دستور پلمب را صادر و اجرا کردند.
+ناصحی‌پور گفت این کافه اقامتی و گردشگری که در یکی از بناهای شاخص تاریخی کاشان فعالیت می‌کرد، پس از طی روند قانونی و بررسی‌های انجام‌شده، مشمول برخورد و پلمب شد.
+خانه عامری‌ها از شناخته‌شده‌ترین بناهای گردشگری دوره قاجار در کاشان است و همواره مورد توجه گردشگران داخلی و خارجی قرار دارد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241050
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_241050_1779227353.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+مارک استون، خبرنگار اسکای‌نیوز، در مواجه با دریادار برد کوپر، فرمانده سنتکام، از او پرسید چرا ارتش آمریکا هنوز جزئیات حادثه مرگبار میناب را منتشر نکرده است.
+
+استون با اشاره به ادعای فرمانده سنتکام گفت تیم اسکای‌نیوز در میناب حضور دارد و «هیچ نشانه‌ای از وجود پایگاه موشکی» در محل حادثه ندیده است.
+
+او همچنین از کوپر پرسید تا چه زمانی ارتش آمریکا به ادامه تحقیقات استناد خواهد کرد و این تحقیقات چه زمانی به پایان می‌رسد.
+
+دریادار کوپر در پاسخ تنها گفت: «تحقیقات ادامه دارد» و از پاسخ به دیگر سوال‌ها خودداری کرد.
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241049
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_241049_1779227354.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رافائل گروسی، مدیرکل آژانس بین‌المللی انرژی اتمی در نشست ویژه شورای امنیت سازمان ملل درباره حمله به نیروگاه هسته‌ای براکه در امارات متحده عربی هشدار داد که حمله مستقیم به این تاسیسات می‌تواند پیامدهای خطرناکی به همراه داشته باشد.
+
+مدیرکل آژانس بین‌المللی انرژی اتمی افزود: «حمله به تاسیسات هسته‌ای که برای اهداف صلح‌آمیز استفاده می‌شوند، غیرقابل قبول است.»
+
+نماینده بحرین در شورای امنیت سازمان ملل اعلام کرد که تهران مسیر تنش‌افزایی را در پیش گرفته و با هدف قرار دادن زیرساخت‌های منطقه، امنیت کشورهای منطقه را تهدید کرده است.
+
+او گفت: «هدف قرار دادن نیروگاه هسته‌ای براکه در امارات متحده عربی تحول خطرناکی است که صلح و امنیت را تهدید می‌کند.»
+
+همچنین نماینده یونان در شورای امنیت سازمان ملل حملات به نیروگاه هسته‌ای براکه در امارات متحده عربی را محکوم کرد و گفت نقض ایمنی هسته‌ای کاملا غیرقابل قبول است و منطقه توان تحمل موج گسترده‌تری از خشونت را ندارد.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241048
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_241048_1779227354.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️وکیل مدافع پژمان جمشیدی از صدور حکم پرونده موکلش در شعبه ۹ دادگاه کیفری یک استان تهران خبر داد و اعلام کرد این رای بدوی بوده و ظرف ۲۰ روز قابل اعتراض است.
+او در گفتگو با ایسنا تاکید کرد تا زمان قطعی شدن حکم، جزئیات و محتوای رای اعلام نخواهد شد.
+در همین حال، ساعاتی پیش سایت امتداد به نقل از شاکی پرونده گزارش داد که حکم به وی ابلاغ شده و به گفته او، پژمان جمشیدی به ۹۹ ضربه شلاق تعزیری محکوم شده است. شاکی همچنین تاکید کرد، مدارک موجود در پرونده به نفع او بوده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241047
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_241047_1779227355.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تماسی بغض‌آلود از ایران:
+«می‌گفت زیر فشار زندگی مونده…
+با مادری بیمار، اجاره عقب‌افتاده و بیماری خودش
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241046
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_241046_1779227356.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️رافائل گروسی، مدیرکل آژانس بین‌المللی انرژی اتمی، روز سه‌شنبه ۲۹ اردیبهشت، در نشست ویژه شورای امنیت سازمان ملل متحد درباره حمله پهپادی اخیر به نیروگاه هسته‌ای «برکه» در امارات، نسبت به پیامدهای فاجعه‌بار اصابت مستقیم به این تاسیسات هشدار داد.
+
+گروسی اگرچه بازگشت برق پشتیبان به این نیروگاه را گامی مهم برای امنیت هسته‌ای خواند، اما تاکید کرد: «می‌خواهم کاملا شفاف بگویم؛ در صورت حمله به نیروگاه برکه، هرگونه اصابت مستقیم می‌تواند به نشت شدید مواد رادیواکتیو در محیط زیست منجر شود.»
+
+او افزود آسیب به خطوط تامین برق نیروگاه، احتمال ذوب شدن قلب راکتورها را به شدت افزایش می‌دهد که این امر در بدترین سناریوها، اتخاذ اقدامات حفاظتی فوری نظیر تخلیه گسترده مناطق اطراف را ناگزیر می‌کند. گروسی در پایان تصریح کرد که حملات نظامی به تاسیسات هسته‌ای با اهداف صلح‌آمیز، به هیچ عنوان قابل قبول نیست.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241045
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_241045_1779227356.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نماینده آمریکا در شورای امنیت سازمان ملل اعلام کرد نیروگاه براکه در امارات متحده عربی یک تاسیسات هسته‌ای صلح‌آمیز است و واشینگتن هیچ‌گونه اغماضی در قبال تخلفات تهران در حوزه ایمنی هسته‌ای نخواهد داشت.
+
+نماینده آمریکا در شورای امنیت سازمان ملل گفت جمهوری اسلامی باید حملات نیروهای نیابتی خود به کشورهای همسایه را متوقف کند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 11706
+
+
+
+
+## WithYashar — post 11705
+
+
+
+
+## WithYashar — post 11704
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در تروث : این یکی از فاجعه‌های بزرگ دوران ریاست‌جمهوری بایدن بود؛ دوره‌ای که پر از بحران و فاجعه بود، از اینکه اجازه داد بقیهٔ جهان زندان‌ها و تیمارستان‌های خود را خالی کنند و افرادشان را به کشور بزرگ ما سرازیر کنند، تا تسلیم شدن در افغانستان
+@withyashar
+</div>
+
+## WithYashar — post 11703
+
+
+
+
+## WithYashar — post 11702
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سناتور لیندسی گراهام ؛«من امیدوارم و انتظار دارم که پس از ماه‌ها مذاکره با ایرانی‌ها، دولت ترامپ هرگونه تلاش ایران برای به‌تعویق انداختن دوباره مذاکرات را رد کند. این رژیم ماه‌ها فرصت داشته تا به یک توافق برسد، اما به نظر من روشن است که در حال بازی دادن طرف مقابل است.
+
+ترجیح من دستیابی به یک راه‌حل دیپلماتیک است، اما قدیمی‌ترین ترفند ایران در این‌گونه مذاکرات، تعویق، تعویق و باز هم تعویق است.
+
+در مورد هر توافق احتمالی نیز، منتظر هستم تا آن را در سنای آمریکا بررسی کنم.»
+@withyashar
+</div>
+
+## WithYashar — post 11701
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اتاق جنگ با شما : عزیزم، ممکنه اون انفجار قارچی چند روز پیش در اسرائیل، تست یه بمب برای زدن اهداف عمیق و مخفی ایران بوده باشه؟
+</div>
+
+## WithYashar — post 11700
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اتاق جنگ با شما : عزیزم، ممکنه اون انفجار قارچی چند روز پیش در اسرائیل، تست یه بمب برای زدن اهداف عمیق و مخفی ایران بوده باشه؟
+</div>
+
+## WithYashar — post 11699
+
+
+
+
+## WithYashar — post 11698
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جای یه b2 خشکل روی میزت خالیه ❤️
+</div>
+
+## WithYashar — post 11697
+
+
+
+
+## WithYashar — post 11696
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اینم پست جدید کارای اداریش رو انجام بدید 😍🔥💥🙌🏾 بمبه
+
+https://www.instagram.com/reel/DYiHl04xutP/?igsh=MWZhNHllczYzNGtvaA==
+
+⁨ اتاق جنگ با یاشار : طوفان ، رهگیری هواپیمای E-2D Advanced Hawkey ناو هواپیمابر آبی خاکی USS BOXER LHD4
+و آب و هوای منطقه برای حمله
+</div>
+
+## mwarmonitor — post 9327
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_9327_1779227357.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 عباس ماله کش که کل کارنامه‌اش آب‌بندی کردنِ رآکتور با بتنِ مرغوب و جابه‌جا کردن مرزهای «تقصیرِ قبلی‌ها بود» است، حالا وسط میدان توهماتِ هالیوودی جفتک می‌اندازد و از شکار F-35 قصه می‌بافد؛ اما شاهکارِ اصلی مال آن دلالِ مو زردِ برج‌ساز است؛ ترامپ که ادعایش گوش فلک را کر کرده بود و می‌خواست با یک توییت دنیا را جابه‌جا کند، حالا جوری اسیرِ امروز و فردا کردن‌های خاله‌زنک‌بازیِ دیپلماتیک شده که این کوتوله‌های لاف‌زن را شیر کرده است.
+
+🔸آقای کله‌زردِ املاکی، آن‌قدر در کاخ سفید شل‌کن‌سفت‌کن درآوردی و برای این ماله به دست‌ها وقت خریدی که حالا از جیبِ تو حماسه می‌تراشند؛ آقای ترامپ، تحویل بگیر که این مسخره‌بازی و انفعال تو، چنان این کوتوله‌های سیاسی را شیر کرده که از دلِ فلاکت و انزوا، برای ابرقدرتت فاکتورِ میلیارد دلاری صادر می‌کنند؛ وقت آن است که یا این بازیِ لفت‌دادنِ احمقانه را تمام کنی یا بپذیری که با این شل‌کن‌سفت‌کن‌ها، قافیه را به چند ماله به دستِ متوهم باخته‌ای و مارِ آستینِ خودت شدی!
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9326
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سناتور لیندسی گراهام ؛«من امیدوارم و انتظار دارم که پس از ماه‌ها مذاکره با ایرانی‌ها، دولت ترامپ هرگونه تلاش ایران برای به‌تعویق انداختن دوباره مذاکرات را رد کند. این رژیم ماه‌ها فرصت داشته تا به یک توافق برسد، اما به نظر من روشن است که در حال بازی دادن طرف مقابل است.
+
+🔸ترجیح من دستیابی به یک راه‌حل دیپلماتیک است، اما قدیمی‌ترین ترفند ایران در این‌گونه مذاکرات، تعویق، تعویق و باز هم تعویق است.
+
+🔸در مورد هر توافق احتمالی نیز، منتظر هستم تا آن را در سنای آمریکا بررسی کنم.»
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9325
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴دولت ترامپ قصد دارد این هفته به متحدان ناتو اعلام کند که در صورت بروز یک بحران بزرگ، دامنه توانمندی‌های نظامی آمریکا که برای کمک به کشورهای اروپایی در دسترس خواهد بود را کاهش می‌دهد. قرار است این تصمیم به‌طور رسمی روز جمعه در بروکسل ابلاغ شود. پنتاگون می‌گوید ایالات متحده همچنان به ارائه چتر هسته‌ای خود ادامه خواهد داد. (رویترز)
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9324
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_9324_1779227357.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+«عبور از تنگه هرمز امشب:
+
+🚢 نفتکش ATMOS (متعلق به روسیه 🇷🇺)
+🚢 نفتکش OCEAN LILY (متعلق به چین 🇨🇳)
+🚢 نفتکش YUAN GUI YANG (متعلق به چین 🇨🇳)
+🚢 کشتی باری ZHANG GU NAN CHANG (متعلق به چین 🇨🇳)»
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9323
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_9323_1779227358.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸«نیروهای سنتکام به اجرای کامل محاصره آمریکا علیه ایران ادامه می‌دهند و جریان تجارت به داخل و خارج از بنادر ایران را متوقف کرده‌اند. تاکنون ۸۹ کشتی تجاری برای اطمینان از رعایت این محاصره، تغییر مسیر داده‌اند.»
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 341964
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_341964_1779227359.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH LIVE: California Muslim leaders hold a press conference on San Diego mosque shooting (Courtesy: KSWB) https://twitter.com/i/broadcasts/1XGygmqmBBdxM
+</div>
+
+## FoxNewsTwitter — post 341963
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341963_1779227360.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+This veteran was expected to have almost no one at his funeral. Instead, an entire community showed up to honor him.
+
+World War II veteran John Bernard Arnold III passed away with no known family and was expected to have only a small service in Massachusetts.
+
+But after a local veterans official put out a call for support, dozens gathered outside Saint Joseph the Worker Church carrying flags, flowers, and wearing military uniforms to honor Arnold.
+</div>
+
+## pm_afshaa — post 91070
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91070_1779227362.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سناتور لیندسی گراهام:
+من امیدوارم و انتظار دارم که پس از ماه‌ها مذاکره با ایرانی‌ها، دولت ترامپ هرگونه تلاش ایران برای به‌تعویق انداختن دوباره مذاکرات رو رد کنه؛ این رژیم ماه‌ها فرصت داشته تا به یک توافق برسه، اما به نظر من روشنه که در حال بازی دادن طرف مقابله.
+
+ترجیح من دستیابی به یک راه‌حل دیپلماتیک است، اما قدیمی‌ترین ترفند ایران در این‌گونه مذاکرات، تعویق، تعویق و باز هم تعویق است. در مورد هر توافق احتمالی هم منتظر هستم تا در سنای آمریکا بررسی کنم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## mamlekate — post 103559
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 ترامپ: رهبران ایران برای توافق «التماس» می‌کنند؛ توافق نکنند به‌زودی دوباره حمله می‌کنیم
+
+رئیس جمهوری ایالات متحده روز سه‌شنبه ۲۹ اردیبهشت در جمع خبرنگاران حاضر در محوطه کاخ سفید گفت رهبران ایران برای توافق «التماس» می‌کنند. او هشدار داد که اگر توافقی حاصل نشود آمریکا در روزهای آینده به جمهوری اسلامی حمله خواهد کرد.
+
+@mamlekate
+</div>
+
+## mamlekate — post 103558
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 اتلتیک: فیفا قصد دارد ورود پرچم شیر و خورشید را به استادیوم‌های جام‌جهانی ممنوع کند
+
+@mamlekate
+</div>
+
+## mamlekate — post 103557
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 بازگشایی بورس تهران پس از ۸۰ روز؛ سهام شرکت‌های بزرگ همچنان بسته ماند
+
+بورس اوراق بهادار تهران پس از ۸۰ روز توقف، فعالیت خود را از سر گرفت. این بازگشایی در شرایطی انجام شد که بخش مهمی از نمادهای بزرگ همچنان بسته ماندند و مجموعه‌ای از محدودیت‌های معاملاتی برای کنترل فشار فروش اعمال شد.
+
+@mamlekate
+</div>
+
+## IranIntlTV — post 338010
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338010_1779227362.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرماندهان ارشد نظامی کشورهای عضو ناتو، در بروکسل درباره افزایش آمادگی دفاعی، ادامه حمایت نظامی از اوکراین و نگرانی‌های امنیتی اروپا گفت‌وگو کردند.
+
+گزارش لی‌لی نیکفر، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 338009
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338009_1779227363.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «همزمانی بحران‌هایی مانند بنزین، برق، گرانی، بیکاری، قطع اینترنت، کمبود آب، گاز و پیامدهای جنگ، جمهوری اسلامی را با مجموعه‌ای از فشارهای همزمان روبه‌رو کرده است. مهم‌ترین بحران برای حکومت خطر از سرگیری قیام مردم است که مجموع این مشکلات را به ابربحران بقا برای حکومت تبدیل کرده و تاب‌آوری آن را زیر سوال برده است.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 338008
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338008_1779227364.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «اگر جنگ از سر گرفته شود و آمریکا و اسرائیل به تلافی حملات جمهوری اسلامی به پالایشگاه‌ها حمله کنند بحران کمبود بنزین به ابربحران بنزین و فروپاشی شبکه تولید و تامین بنزین منجر ‌می‌شود.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 338007
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338007_1779227365.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «دولت همه واقعیت موجود درباره احتمال وقوع ابربحران‌های بنزین و برق را به مردم نمی‌گوید. مسئله فقط کمبود بنزین و برق نیست مسئله احتمال فروپاشی شبکه تامین بنزین و برق در جریان جنگ است.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 338006
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338006_1779227366.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لیندزی گراهام، سناتور جمهوری‌خواه، با ابراز امیدواری مبنی بر اینکه دولت ترامپ پس از ماه‌ها مذاکره با تهران، هرگونه تلاش جمهوری اسلامی برای بار دیگر به تاخیر انداختن مذاکرات را رد کند، گفت حکومت ایران در حال وقت‌کشی و بازی کردن است.
+گراهام گفت: «حکومت ایران ماه‌ها فرصت داشته است تا به توافق برسد، اما به نظر من روشن است که آنها در حال بازی کردن هستند. ترجیح من یک راه‌حل دیپلماتیک است، اما قدیمی‌ترین ترفند تهران در این زمینه تاخیر، تاخیر، تاخیر است. در مورد هر توافق احتمالی، مشتاقم آن را در سنا بررسی کنم.»
+
+https://iranintl.com/202605190605
+</div>
+
+## IranIntlTV — post 338005
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338005_1779227367.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمدمهدی جارچی، جوان ۳۸ ساله و متاهل، در فردیس استان البرز، عاشق ایران و شیفته موسیقی بود.
+
+صبح ۱۹ دی، او با دیدن پیکر چند جان‌باخته انقلاب ملی در نزدیکی خانه‌اش عمیقاً تحت تأثیر قرار گرفت. همان شب در فردیس البرز به معترضان پیوست و با شلیک گلوله نیروهای حکومتی کشته شد.
+
+او رویای آزادی ایران را در سر داشت؛ نامش حالا در میان جاویدنامان انقلاب ملی ماندگار شده است.
+
+@iranintltv
+</div>
+
+## IranIntlTV — post 338003
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338003_1779227368.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تیم فوتبال منچسترسیتی در هفته سی‌وهفتم لیگ برتر انگلستان با نتیجه یک بر یک برابر بورنموث متوقف شد. تیم پپ گواردیولا با این تساوی از رقابت برای قهرمانی جا ماند و آرسنال پس از ۲۲ سال قهرمان لیگ برتر شد. توپچی‌ها آخرین قهرمانی خود در لیگ برتر را در سال ۲۰۰۴ کسب کرده بودند.
+
+🔹منچسترسیتی و آرسنال در هفته‌های گذشته رقابت نزدیکی برای صدرنشینی و قهرمانی داشتند، هرچند آرسنال در این رقابت دست بالاتر را داشت.
+
+🔹با توجه به پیروزی شب گذشته آرسنال برابر برنلی، منچسترسیتی باید بازی امشب خود را با پیروزی پشت سر می‌گذاشت تا کورس قهرمانی به هفته پایانی کشیده شود، اما ناکامی سیتی برابر بورنموث به قهرمانی آرسنال و آرتتا، یک هفته پیش از پایان لیگ برتر، منجر شد.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 338002
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338002_1779227368.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حجت‌الله ناصحی‌پور، معاون گردشگری اداره میراث‌فرهنگی، گردشگری و صنایع‌دستی کاشان، گفت کافه مجموعه تاریخی عامری‌ها به دلیل گزارش وقوع دو مورد رعایت نکردن حجاب اجباری پلمب شد. او افزود مراجع ذی‌ربط پس از دریافت گزارش‌ها، دستور پلمب را صادر و اجرا کردند.
+ناصحی‌پور گفت این کافه اقامتی و گردشگری که در یکی از بناهای شاخص تاریخی کاشان فعالیت می‌کرد، پس از طی روند قانونی و بررسی‌های انجام‌شده، مشمول برخورد و پلمب شد.
+خانه عامری‌ها از شناخته‌شده‌ترین بناهای گردشگری دوره قاجار در کاشان است و همواره مورد توجه گردشگران داخلی و خارجی قرار دارد.
+https://iranintl.com/202605195284
+</div>
+
+## IranIntlTV — post 338001
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338001_1779227369.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رافائل گروسی، مدیرکل آژانس بین‌المللی انرژی اتمی در نشست ویژه شورای امنیت سازمان ملل درباره حمله به نیروگاه هسته‌ای براکه در امارات متحده عربی هشدار داد که حمله مستقیم به این تاسیسات می‌تواند پیامدهای خطرناکی به همراه داشته باشد.
+
+مدیرکل آژانس بین‌المللی انرژی اتمی افزود: «حمله به تاسیسات هسته‌ای که برای اهداف صلح‌آمیز استفاده می‌شوند، غیرقابل قبول است.»
+
+نماینده بحرین در شورای امنیت سازمان ملل اعلام کرد که تهران مسیر تنش‌افزایی را در پیش گرفته و با هدف قرار دادن زیرساخت‌های منطقه، امنیت کشورهای منطقه را تهدید کرده است.
+
+او گفت: «هدف قرار دادن نیروگاه هسته‌ای براکه در امارات متحده عربی تحول خطرناکی است که صلح و امنیت را تهدید می‌کند.»
+
+همچنین نماینده یونان در شورای امنیت سازمان ملل حملات به نیروگاه هسته‌ای براکه در امارات متحده عربی را محکوم کرد و گفت نقض ایمنی هسته‌ای کاملا غیرقابل قبول است و منطقه توان تحمل موج گسترده‌تری از خشونت را ندارد.»
+https://iranintl.com/202605192527
+</div>
+
+## IranIntlTV — post 338000
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338000_1779227369.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نشست اضطراری شورای امنیت سازمان ملل به درخواست بحرین درباره بررسی حمله به نیروگاه هسته‌ای براکه در امارات متحده عربی برگزار شد.
+
+گفت‌وگو با رضا گوهرزاد، روزنامه‌نگار و تحلیلگر سیاسی
+@iranintltv
+</div>
+
+## IranIntlTV — post 337999
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337999_1779227371.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+معاون رییس‌جمهور آمریکا، گفت واشینگتن در مذاکرات با جمهوری اسلامی به‌دنبال محدودیت‌های بلندمدت و پایدار بر برنامه هسته‌ای ایران است. جی‌دی ونس همچنین تاکید کرد آمریکا توافقی را که به ایران امکان دستیابی به سلاح هسته‌ای بدهد، نمی‌پذیرد.
+
+گفت‌وگو با علیرضا نامورحقیقی، تحلیلگر سیاسی
+@iranintltv
+</div>
+
+## IranIntlTV — post 337998
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337998_1779227373.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انور قرقاش، مشاور دیپلماتیک امارات، حملات ایران را تجاوز وحشیانه جمهوری اسلامی خواند و تاکید کرد سکوت و موضع خاکستری بعضی کشورها، خطرناک‌تر است و از آن‌ها به‌ خاطر حرکت به سمت میانجی‌گری انتقاد کرد.
+
+ارزیابی علی صدرزاده، تحلیلگر مسائل خاورمیانه
+@iranintltv
+</div>
+
+## IranIntlTV — post 337997
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337997_1779227374.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مستند «یک رفاقت؛ از زندان وکیل‌آباد مشهد تا سن‌دیگو» ساخته اردوان روزبه و تولید ایران‌اینترنشنال، برنده جایزه نقره‌ای تلی ۲۰۲۶ شد. این مستند روایت دوستی مایکل وایت، کهنه‌سرباز آمریکایی و مهدی وطن‌خواه، فعال سیاسی در زندان وکیل‌آباد مشهد است.
+
+گفت‌وگو با اردوان روزبه، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 337996
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337996_1779227375.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ گفت احتمال حمله دوباره آمریکا به ایران وجود دارد اما تصمیم نهایی هنوز گرفته نشده است. او افزود دستور حمله اخیر را در لحظات آخر متوقف کرده، چون مذاکرات با مشارکت چند کشور منطقه‌ای در حال پیشرفت است.
+
+ارزیابی جمشید برزگر، روزنامه‌نگار و تحلیلگر سیاسی
+@iranintltv
+</div>
+
+## IranIntlTV — post 337995
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337995_1779227376.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رییس‌جمهور آمریکا گفت شاید ایالات متحده دوباره مجبور شود به جمهوری اسلامی ضربه بزند، هرچند هنوز درباره انجام این اقدام تصمیم قطعی نگرفته است. او افزود فقط یک ساعت پیش از دستور حمله به ایران، آن را عقب انداخته است.
+
+ارزیابی جمشید برزگر، روزنامه‌نگار و تحلیلگر سیاسی
+@iranintltv
+</div>
+
+## IranIntlTV — post 337994
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337994_1779227378.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نماینده آمریکا در شورای امنیت سازمان ملل اعلام کرد نیروگاه براکه در امارات متحده عربی یک تاسیسات هسته‌ای صلح‌آمیز است و واشینگتن هیچ‌گونه اغماضی در قبال تخلفات تهران در حوزه ایمنی هسته‌ای نخواهد داشت.
+
+نماینده آمریکا در شورای امنیت سازمان ملل گفت جمهوری اسلامی باید حملات نیروهای نیابتی خود به کشورهای همسایه را متوقف کند.
+https://iranintl.com/202605191886
+</div>
+
+## ManotoTV — post 105662
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105662_1779227379.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+لیلا بهمنی، عضو «کمیته مقررات عدالت انتقالی» که از سوی شاهزاده رضا پهلوی انتخاب شده، در گفت‌وگو با منوتو از شهروندانی که اموالشان توسط جمهوری اسلامی مصادره شده خواست همه اسناد و مدارک مرتبط را حفظ کنند.
+
+او گفت افرادی که با مصادره اموال روبه‌رو شده‌اند باید از نخستین تماس‌ها، پیامک‌ها، احضاریه‌ها و روند مصادره، یک «جدول زمانی» دقیق تهیه کنند و مشخصات افرادی را که در این روند حضور داشته‌اند ثبت کنند.
+
+بهمنی تاکید کرد اسناد باید در چند نسخه، از جمله نسخه دیجیتال، نگهداری شوند و حتی در صورت از بین رفتن مدارک رسمی، شهادت شاهدان، همسایه‌ها و آشنایان نیز می‌تواند در آینده برای اثبات مالکیت یا مصادره اموال مورد استفاده قرار گیرد.
+
+او در عین حال تاکید کرد امنیت افراد باید در اولویت باشد و شهروندان نباید برای جمع‌آوری یا نگهداری اسناد، جان یا امنیت خود را به خطر بیندازند.
+
+این عضو کمیته مقررات عدالت انتقالی گفت هرچه اسناد و مدارک بیشتری وجود داشته باشد، اثبات «جرم مصادره» در آینده آسان‌تر خواهد بود.
+</div>
+
+## ManotoTV — post 105661
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105661_1779227380.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+مارک استون، خبرنگار اسکای‌نیوز، در مواجه با دریادار برد کوپر، فرمانده سنتکام، از او پرسید چرا ارتش آمریکا هنوز جزئیات حادثه مرگبار میناب را منتشر نکرده است.
+
+استون با اشاره به ادعای فرمانده سنتکام گفت تیم اسکای‌نیوز در میناب حضور دارد و «هیچ نشانه‌ای از وجود پایگاه موشکی» در محل حادثه ندیده است.
+
+او همچنین از کوپر پرسید تا چه زمانی ارتش آمریکا به ادامه تحقیقات استناد خواهد کرد و این تحقیقات چه زمانی به پایان می‌رسد.
+
+دریادار کوپر در پاسخ تنها گفت: «تحقیقات ادامه دارد» و از پاسخ به دیگر سوال‌ها خودداری کرد.
+</div>
+
+## ManotoTV — post 105660
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105660_1779227381.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تماسی بغض‌آلود از ایران:
+«می‌گفت زیر فشار زندگی مونده…
+با مادری بیمار، اجاره عقب‌افتاده و بیماری خودش
+</div>
+
+## FarsiVOA — post 218188
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️جی‌دی ونس: پیشرفت‌های بسیاری در گفت‌وگو با جمهوری‌ اسلامی داشته‌ایم
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218187
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ماجرای مهار دستوری یک سقوط حتمی در بورس تهران پس از ۸۰ روز تعطیلی؛ گفت‌وگو با معصومه طاهرخانی
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218186
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️مخفی ماندن «مجتبی خامنه‌ای»؛ علل، ریشه‌ها و پی‌آمدهای آن برای جمهوری اسلامی در گفت‌وگو با سعید آگنجی
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218185
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️گسترش مدارس دینی در حاکمیت طالبان و نگرانی از افراط‌گرایی در منطقه
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218184
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218184_1779227383.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️مهدی نوربخش در برنامه تفسیر خبر: ایران در یک فرصت تاریخی قرار گرفته
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218183
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️تازه‌ترین مواضع دموکرات‌ها و جمهوری‌خواهان در مورد تحولات مربوط به ایران
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218182
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺اسکات بسنت از متحدان آمریکا خواست منابع مالی جمهوری اسلامی را هدف قرار دهند
+
+
+▪️اسکات بسنت، وزیر خزانه‌داری ایالات متحده، روز سه‌شنبه ۲۹ اردیبهشت در یک نشست مبارزه با تأمین مالی تروریسم در پاریس، از متحدان اروپایی خواست که به منابع مالی جمهوری اسلامی حمله کنند.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8151743.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218181
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️چه کسی اینترنت در ایران را کنترل می‌کند؟
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218180
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218180_1779227383.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️فرزین کرباسی در برنامه تفسیر خبر: برای بخش تندروی نظام کمترین عقب‌نشینی پشت پا به تمام ارزش‌هاست
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218179
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ترامپ: وقفه در اقدام نظامی علیه جمهوری اسلامی کوتاه است؛ رژیم ایران نباید سلاح هسته‌ای داشته باشد
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218178
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218178_1779227384.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️کامبیز غفوری در برنامه تفسیر خبر: جمهوری اسلامی قمارباز بدی است
+
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218177
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️جی دی ونس، معاون رئیس جمهوری آمریکا، روز سه‌شنبه ۲۹ اردیبهشت با حضور در سالن کنفرانس‌های مطبوعاتی کاخ سفید به پرسش‌های خبرنگاران، که بخش عمده‌ای از آن درباره وضعیت ایران و منطقه بود، پاسخ داد. صدای آمریکا این جلسه را به صورت مستفیم و با ترجمه همزمان پژواک کیومرثی پخش کرد.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218176
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺پرزیدنت ترامپ: رهبران ایران برای توافق «التماس» می‌کنند؛ توافق نکنند به‌زودی دوباره حمله می‌کنیم
+
+▪️رئیس جمهوری ایالات متحده روز سه‌شنبه ۲۹ اردیبهشت در جمع خبرنگاران حاضر در محوطه کاخ سفید گفت رهبران ایران برای توافق «التماس» می‌کنند. او هشدار داد که اگر توافقی حاصل نشود آمریکا در روزهای آینده به جمهوری اسلامی حمله خواهد کرد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/iran-trump-us-strike-epic-fury/8151680.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218175
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️جی دی ونس، معاون رئیس جمهوری آمریکا، روز سه‌شنبه ۲۹ اردیبهشت با حضور در سالن کنفرانس‌های مطبوعاتی کاخ سفید به پرسش‌های خبرنگاران، که بخش عمده‌ای از آن درباره وضعیت ایران و منطقه بود، پاسخ داد. صدای آمریکا این جلسه را به صورت مستفیم و با ترجمه همزمان پژواک کیومرثی پخش کرد.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218174
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️جی دی ونس، معاون رئیس جمهوری آمریکا، روز سه‌شنبه ۲۹ اردیبهشت با حضور در سالن کنفرانس‌های مطبوعاتی کاخ سفید به پرسش‌های خبرنگاران، که بخش عمده‌ای از آن درباره وضعیت ایران و منطقه بود، پاسخ داد. صدای آمریکا این جلسه را به صورت مستفیم و با ترجمه همزمان پژواک کیومرثی پخش کرد.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218173
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️جی دی ونس، معاون رئیس جمهوری آمریکا، روز سه‌شنبه ۲۹ اردیبهشت با حضور در سالن کنفرانس‌های مطبوعاتی کاخ سفید به پرسش‌های خبرنگاران، که بخش عمده‌ای از آن درباره وضعیت ایران و منطقه بود، پاسخ داد. صدای آمریکا این جلسه را به صورت مستفیم و با ترجمه همزمان پژواک کیومرثی پخش کرد.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218172
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺شهاب دلیلی که پس از سفر به ایران توسط جمهوری اسلامی دستگیر و زندانی شده بود پس از ده سال به آمریکا بازگشت
+
+▪️سازمان «کمک به گروگان‌ها در سراسر جهان» اعلام کرد شهاب دلیلی، ایرانی مقیم آمریکا که از سال ۱۳۹۵ جمهوری اسلامی او را زندانی کرده بود، آزاد شد و به آمریکا بازگشت.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/iran-us-hostage-shahab-dalili-captain-prison/8151618.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218171
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️پرزیدنت ترامپ روز سه‌شنبه ۲۹ اردیبهشت در محل احداث تالار رقص کاخ سفید حاضر شد و به پرسش‌های متعدد خبرنگاران پاسخ داد. صدای آمریکا بخش‌هایی از این پرسش و پاسخ را با ترجمه همزمان پژواک کیومرثی پخش کرد.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218170
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺رشید مظاهری در سلول انفرادی؛ همسر این فوتبالیست از مردم خواست تا صدای او باشند
+
+◾️رشید مظاهری، دروازه‌بان پیشین تیم ملی فوتبال ایران که پس از انتقاد علنی از علی خامنه‌ای و کشتار دی ۱۴۰۴ بازداشت شده بود، به سلول انفرادی زندان مرکزی ارومیه منتقل شده است.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/solitary-cell-urumiyah-central-prison-rashid-mazaheri/8151695.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218169
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️پرزیدنت ترامپ روز سه‌شنبه ۲۹ اردیبهشت در محل احداث تالار رقص کاخ سفید حاضر شد و به پرسش‌های متعدد خبرنگاران پاسخ داد. صدای آمریکا بخش‌هایی از این پرسش و پاسخ را با ترجمه همزمان پژواک کیومرثی پخش کرد.
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 14497
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://youtube.com/live/iLtj3w_ZmNU?feature=share
+</div>
+
+## Persian_Trend_Official — post 14496
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14496_1779227384.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خضریان،عضو کمیسیون امنیت ملی مجلس:
+
+💢امیدوارم خبر سفر عراقچی به نیویورک برای مذاکره در خصوص تنگه هرمز دروغ باشد!
+
+💢چرا ما در خصوص موضوع تنگه هرمز باید در خاک دشمن مذاکره کنیم؟
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14495
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14495_1779227385.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نسخه صوتی لایو امشب در کست باکس:
+
+https://castbox.fm/vi/946964459
+
+
+نیاز به دانلود هیچ اپلیکیشنی ندارید، فقط کافیه لینک رو در مرورگر خودتون کپی کنید و فایل رو بشنوید
+</div>
+
+## Persian_Trend_Official — post 14494
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نسخه صوتی لایو امشب در اسپاتیفای : https://open.spotify.com/episode/1E7uxKoNvLatPFATA5y8Jc?si=j4CwM-EiQDaOyw4ByYHJZw
+</div>
+
+## Persian_Trend_Official — post 14493
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14493_1779227386.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نسخه صوتی لایو امشب در اسپاتیفای :
+
+https://open.spotify.com/episode/1E7uxKoNvLatPFATA5y8Jc?si=j4CwM-EiQDaOyw4ByYHJZw
+</div>
+
+## Persian_Trend_Official — post 14491
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 هواپیمای پیشرفته «E-2D» آمریکا بر روی آسمان خلیج فارس در حال گشت زنی است
+
+💢گزارش‌ها حاکی از آن است که یک فروند هواپیمای هشدار زودهنگام و کنترل هوایی «E-2D Hawkeye» متعلق به نیروی دریایی آمریکا در حال گشت زنی در خلیج فارس است.
+
+▪️ این هواپیما برای شناسایی اهداف هوایی و دریایی و مدیریت میدان نبرد استفاده می‌شود
+
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 20412
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_20412_1779227387.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 طبق گفته‌ی خواهر الهه حسین‌نژاد؛
+بهمن فرزانه (قاتل) امشب اعدام میشه.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20411
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_20411_1779227387.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایران تنها کشوریه که وقتی به گذشته اش نگاه میکنی، انگار آینده اش را می بینی.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 281546
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻در چند هفته گذشته، دونالد ترامپ رئیس جمهوری آمریکا بارها گفته که به کردها اسلحه داده تا به دست معترضان در ایران برسانند،
+اما کردها این سلاح ها را نگه داشته اند. این در حالی است که احزاب کرد ایرانی و مقامهای اقلیم کردستان عراق می گویند سلاحی به این منطقه فرستاده نشده.
+
+اما تحقیقات بی بی سی نشان می‌دهد که قرار بوده احزاب کرد ایرانی سه روز پس از آغازجنگ ۳۹ روزه، وارد ایران شوند و به آنها کمک مالی شده بود.
+@BBCPersian
+</div>
+
+## BBCPersian — post 281545
+
+<div align="center">
+  <a href="https://t.me/bbcpersian/281545" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پادکست برنامه شصت دقیقه سه‌شنبه ۲۹ اردیبهشت ۱۴۰۵
+این نسخه رادیویی برنامه شصت دقیقه تلویزیون فارسی بی‌بی‌سی است که هرشب بعد از پخش، با حجم کم از اپلیکیشن‌های پادگیر و صفحه تلگرام بی‌بی‌سی فارسی در دسترس است.
+با هشتگ BBCPersianRadio با ما در ارتباط باشید.
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 389777
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389777_1779227388.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+از پارتیم شانس نیاوردیم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389776
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389776_1779227388.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یه تیر برق رندومی تو خیابونهای لندن
+
+مجتبی جهانی شده…
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389775
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389775_1779227388.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فیفا ورود پرچم شیرو خورشید به داخل ورزشگاه هارو ممنوع کرده ولی نمیدونه گل های تو غربت جام جهانی رو برای مزدوران جمهوری اسلامی تبدیل به جام جهنمی میکنن
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389774
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389774_1779227389.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 طبق گفته‌ی خواهر الهه حسین‌نژاد؛
+بهمن فرزانه (قاتل) امشب اعدام میشه.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389773
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏صدا و سیما میخواد امشب طرز کار کردن با بمب اتم را آموزش بده
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## manototv — post 105662
+
+<div align="center">
+  <a href="telegram/content/manototv_105662_1779227390.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+لیلا بهمنی، عضو «کمیته مقررات عدالت انتقالی» که از سوی شاهزاده رضا پهلوی انتخاب شده، در گفت‌وگو با منوتو از شهروندانی که اموالشان توسط جمهوری اسلامی مصادره شده خواست همه اسناد و مدارک مرتبط را حفظ کنند.
+
+او گفت افرادی که با مصادره اموال روبه‌رو شده‌اند باید از نخستین تماس‌ها، پیامک‌ها، احضاریه‌ها و روند مصادره، یک «جدول زمانی» دقیق تهیه کنند و مشخصات افرادی را که در این روند حضور داشته‌اند ثبت کنند.
+
+بهمنی تاکید کرد اسناد باید در چند نسخه، از جمله نسخه دیجیتال، نگهداری شوند و حتی در صورت از بین رفتن مدارک رسمی، شهادت شاهدان، همسایه‌ها و آشنایان نیز می‌تواند در آینده برای اثبات مالکیت یا مصادره اموال مورد استفاده قرار گیرد.
+
+او در عین حال تاکید کرد امنیت افراد باید در اولویت باشد و شهروندان نباید برای جمع‌آوری یا نگهداری اسناد، جان یا امنیت خود را به خطر بیندازند.
+
+این عضو کمیته مقررات عدالت انتقالی گفت هرچه اسناد و مدارک بیشتری وجود داشته باشد، اثبات «جرم مصادره» در آینده آسان‌تر خواهد بود.
+</div>
+
+## manototv — post 105661
+
+<div align="center">
+  <a href="telegram/content/manototv_105661_1779227392.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+مارک استون، خبرنگار اسکای‌نیوز، در مواجه با دریادار برد کوپر، فرمانده سنتکام، از او پرسید چرا ارتش آمریکا هنوز جزئیات حادثه مرگبار میناب را منتشر نکرده است.
+
+استون با اشاره به ادعای فرمانده سنتکام گفت تیم اسکای‌نیوز در میناب حضور دارد و «هیچ نشانه‌ای از وجود پایگاه موشکی» در محل حادثه ندیده است.
+
+او همچنین از کوپر پرسید تا چه زمانی ارتش آمریکا به ادامه تحقیقات استناد خواهد کرد و این تحقیقات چه زمانی به پایان می‌رسد.
+
+دریادار کوپر در پاسخ تنها گفت: «تحقیقات ادامه دارد» و از پاسخ به دیگر سوال‌ها خودداری کرد.
+</div>
+
+## manototv — post 105660
+
+<div align="center">
+  <a href="telegram/content/manototv_105660_1779227393.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تماسی بغض‌آلود از ایران:
+«می‌گفت زیر فشار زندگی مونده…
+با مادری بیمار، اجاره عقب‌افتاده و بیماری خودش
+</div>
+
+## alonews — post 121187
+
+<div align="center">
+  <a href="telegram/content/alonews_121187_1779227394.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈جا داره قهرمانی آرسنال رو به جاویدنام عارف جعفرزاده تبریک بگیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121186
+
+<div align="center">
+  <a href="telegram/content/alonews_121186_1779227395.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈لیندسی گراهام : امیدوارم و انتظار هم دارم بعد از این چند ماه مذاکره با ایرانی‌ها، دولت ترامپ هر تلاشی رو که برای دوباره کش دادن مذاکراته رد کنه
+- این رژیم ماه‌ها وقت داشته به توافق برسه، ولی به نظرم واضحه دارن بازی درمیارن
+
+-:من خودم ترجیحم راه‌حل دیپلماتیکه، ولی قدیمی‌ترین ترفند ایران همیشه این بوده : امروز و فردا کردن، کش دادن، کش دادن، کش دادن
+
+- در مورد هر توافقی هم، منتظرم بره سنا و اونجا بررسیش کنیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121185
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈جهت رزرو تبلیغات vpn در کانال #الونیوز به کانال زیر مراجعه کنید👇
+
+
+📃https://t.me/ads_alonews
+
+📃https://t.me/ads_alonews
+</div>
+
+## alonews — post 121184
+
+<div align="center">
+  <a href="telegram/content/alonews_121184_1779227395.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حسین طاهری مداح:
+اینکه دخترها بی حجاب میان تجمعات یعنی پیروزی انقلاب
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121183
+
+<div align="center">
+  <a href="telegram/content/alonews_121183_1779227395.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈امروز سالگرد فرود سخت بالگرد ابراهیم رئیسی هست 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121182
+
+<div align="center">
+  <a href="telegram/content/alonews_121182_1779227395.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈امروز سالگرد فرود سخت بالگرد ابراهیم رئیسی هست
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121181
+
+<div align="center">
+  <img src="telegram/content/alonews_121181_1779227395.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+توی رستورانای تهران، یدونه سالاد شده 2 میلیون تومن!!
+
+[@AloTweet]
+</div>
+
+## alonews — post 121180
+
+<div align="center">
+  <a href="telegram/content/alonews_121180_1779227395.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تندروهای خیابونی این شبا تو تجمعات دارن یه‌ جوری قر میدن و میرقصن که انگاری ما رهبر آمریکا رو ترور کردیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121179
+
+<div align="center">
+  <img src="telegram/content/alonews_121179_1779227397.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🏴󠁧󠁢󠁥󠁮󠁧󠁿
+🤩رسمی : آرسنال قهرمان فصل 2025/2026 پریمیرلیگ شد
+
+
+❤️پروژه آرتتا بلاخره جواب داد
+
+@AloSport
+</div>
+
+## alonews — post 121178
+
+<div align="center">
+  <a href="telegram/content/alonews_121178_1779227397.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حمله‌‌های شدید اسرائیل به کرانه باختری
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121177
+
+<div align="center">
+  <a href="telegram/content/alonews_121177_1779227398.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈آای هیمتی:
+مردم جلوی گرونیا مقاومت کنن
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/29 23:38
 ---
 
