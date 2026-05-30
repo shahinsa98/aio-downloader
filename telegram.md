@@ -7,6 +7,139 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/10 03:20
+---
+
+## VahidOOnLine — post 242967
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️براساس تصاویری که به تازگی در شبکه‌های اجتماعی منتشر شده، در جریان مرمت تخت مرمر در کاخ گلستان در روز ۱۸ فروردین‌ماه، مرمت‌گران قطعه «سر فرشته» یکی از مجسمه‌های تاریخی این عمارت را که جدا شده بود، در میان آوار و قطعات شکسته‌شده پیدا کردند.
+در همین رابطه، جبار آوج، مسئول موزه‌های کاخ گلستان، در گفتگو با رکنا اعلام کرد در اثر امواج ناشی از انفجار جنگ اخیر، خساراتی به تزیینات معماری، آیینه‌کاری‌ها، گچ‌بری‌ها و ارسی‌های چوبی این مجموعه وارد کرده است. به گفته او، اگرچه در حال حاضر امکان بازدید عمومی از کاخ وجود ندارد اما هیچ‌یک از آثار موزه‌ای آسیب ندیده‌اند. آوج همچنین تاکید کرد که اقدامات حفاظت اضطراری برای تثبیت شرایط و جلو‌گیری از خسارات ثانویه ناشی از بارندگی‌ها انجام شده و مجموعه در وضعیت پایدار قرار دارد تا پس از پایان مرحله آسیب‌شناسی، وارد فاز مرمت جامع شود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242966
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242966_1780185009.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهوری ایالات متحده، روز شنبه با انتشار تصویر گرافیکی تولیدشده با هوش مصنوعی در شبکه اجتماعی «تروث سوشال»، توجه رسانه‌ها را به خود جلب کرد. در این تصویر ترامپ در جامه یک فرمانده نظامی ارشد با نشان عقاب طلایی آمریکا به تصویر کشیده شده که با انگشت به مخاطب اشاره می‌کند. در پس‌زمینه این طرح، نمادهای قدرت نظامی ایالات متحده از جمله جنگنده‌های پیشرفته در حال صعود و ناوشکن‌ها در کنار کشتی‌های بادبانی تاریخی با پرچم برافراشته آمریکا در میان موج‌های خروشان دریا دیده می‌شوند. ترامپ در حاشیه این تصویر نوشت: «شما دارید گیج و سردرگم می‌شوید».
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242965
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_242965_1780185009.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی منتشرشده در رسانه‌های اجتماعی وابسته به جمهوری اسلامی نشان می‌دهد سپاه پاسداران، شامگاه شنبه نهم خرداد، قایق تندرویی را همراه با موشک ضدکشتی برای حامیان حکومت در میدان انقلاب تهران به نمایش گذاشت.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242964
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️همزمان با آشوب، آتش‌سوزی و تنش در خیابان‌های پاریس به دنبال جشن قهرمانی پاریس سن ژرمن در دیدار نهایی لیگ قهرمانان اروپا، مارین لوپن، رهبر حزب «اجتماع ملی»، با انتشار پیامی تند در شبکه اجتماعی اکس، به شدت از وضعیت امنیت عمومی انتقاد کرد. این چهره سرشناس سیاسی با اشاره به جو رعب و وحشت حاکم بر خیابان‌ها، بر لزوم برخورد قاطع با برهم‌زنندگان نظم عمومی تاکید کرد. لوپن در موضع‌گیری صریح خود نوشت: «فقط در فرانسه است که پیروزی یک باشگاه فوتبال باعث بروز شورش می‌شود. فقط در فرانسه است که هر کسی احساس می‌کند مجبور است در شب پیروزی، خود را در خانه حبس کند تا با خشونت مواجه نشود.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 12971
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فارس : براساس برنامه‌ریزی‌های انجام‌شده، حجاج ایرانی از فرودگاه جده به شش فرودگاه شامل تهران، مشهد، زاهدان، شیراز، گرگان و اصفهان منتقل خواهند شد.
+
+نخستین پرواز بازگشت حجاج روز ۱۱ خردادماه(دوشنبه) از جده به مقصد تهران انجام می‌شود.
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342437
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342437_1780185011.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+A suspected drug-trafficking boat erupts into flames after being struck by U.S. forces in the eastern Pacific.
+
+New video, released by U.S. Southern Command, shows the moment the vessel is hit during an operation carried out Friday.
+
+SOUTHCOM says three "male narco-terrorists" were killed in the strike.
+</div>
+
+## FoxNewsTwitter — post 342436
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌Fox News (Twitter/X)
+
+👉 Full story here:
+</div>
+
+## FoxNewsTwitter — post 342435
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342435_1780185013.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Proud Boys and communist activists clash outside Newark ICE detention center as Gov. Sherrill admits 5 of 6 people arrested this week came from out of state. What started as a protest over detainee conditions has become a full-blown ideological battleground — with 'national extremist groups' on both sides driving the chaos, not local residents.
+</div>
+
+## IranIntlTV — post 339802
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339802_1780185014.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی منتشرشده در رسانه‌های اجتماعی وابسته به جمهوری اسلامی نشان می‌دهد سپاه پاسداران، شامگاه شنبه نهم خرداد، قایق تندرویی را همراه با موشک ضدکشتی برای حامیان حکومت در میدان انقلاب تهران به نمایش گذاشت.
+</div>
+
+## IranianMinds — post 21096
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21096_1780185016.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پست ترامپ:
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21095
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21095_1780185017.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+@IranianMinds
+</div>
+
+## BBCPersian — post 282453
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻مراسم خاکسپاری مجتبی و میثم ویسی، دو برادر کُرد یارسان که دو روز پیش با شلیک نیروهای سپاه پاسداران در منطقه دالاهو کرمانشاه جان باخته بودند، امروز برگزار شد.
+
+سوران قربانی گزارش می‌دهد
+@BBCPersian
+</div>
+
+---
 📅 بروزرسانی: 1405/03/10 02:17
 ---
 
